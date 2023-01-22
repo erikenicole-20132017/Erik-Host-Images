@@ -5,3 +5,5 @@ Host images with Erik Host images!
 Upload file [Outlook](mailto:erikngresi1@outlook.it) [ic-predazzotesero.it](mailto:erikngresi@ic-predazzotesero.it) [Gmail](mailto:ngresierik@gmail.com)
 
 <p align="center">©Erik Corporation 2022. All rights reserved</p>
+
+[!] The publication of the images is no longer possible.
